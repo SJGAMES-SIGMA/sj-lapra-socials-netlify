@@ -1,1 +1,0 @@
-# sj-lapra-socials-netlify
